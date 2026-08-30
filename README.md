@@ -1,1 +1,2 @@
-yamakuda saaaaaiiiiiiiiiiiiiiiiiiiii
+pakaaada balannneeeee 👻
+man mara karriyek.
