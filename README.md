@@ -1,2 +1,1 @@
-pakaaada balannneeeee 👻
-man mara karriyek.
+insanity
